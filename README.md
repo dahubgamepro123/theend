@@ -29,6 +29,11 @@ tayo kardeşim gibiydi taa bundan 3 yıl once geldi bana roblox lua sını ögre
 
 
 
+ipeğinde hic bir şekilde hakkını ödeyemem icimi dokecegim tek kişi oydu ve güvenebilecegim görüyorsan bunu senide cok opuyorum..
+
+
+
+
 + olarak DERINDEN HICBIR SEKILDE BIR NUDE ALMADIM 
 
 + Copyright © 2021 aiden aka utku - All rights reserve.
