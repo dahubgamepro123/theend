@@ -22,5 +22,5 @@ kfmsDnKDM36caxae11 presents.
 + olarak bazı insanlar zipekle beni sevgili zannediyordu hic bir zaman sevgili olmadık sadece ailemden fazla değer veriyordum.
 
 
-Copyright © 2021 aiden aka utku - All rights reserve.
++ Copyright © 2021 aiden aka utku - All rights reserve.
 
