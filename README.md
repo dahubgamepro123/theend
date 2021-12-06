@@ -23,13 +23,13 @@ kfmsDnKDM36caxae11 presents.
 + olarak bazı insanlar zipekle beni sevgili zannediyordu hic bir zaman sevgili olmadık olmakta istemem sadece ailemden fazla değer veriyordum.
 
 
-buda tayo icin
++ buda tayo icin
 
 tayo kardeşim gibiydi taa bundan 3 yıl once geldi bana roblox lua sını ögretti ögretmen gibiydi yeri geldi kavga ettik yeri geldi sikiştik(bruh) oda bir kardeşden öteydi orospu cocugu ama kittenassisten sadece 31k robux verdi anasını siktigim senide cok seviyorum..
 
 
 
-ipeğinde hic bir şekilde hakkını ödeyemem icimi dokecegim tek kişi oydu ve güvenebilecegim görüyorsan bunu senide cok opuyorum..
++ ipeğinde hic bir şekilde hakkını ödeyemem icimi dokecegim tek kişi oydu ve güvenebilecegim görüyorsan bunu senide cok opuyorum..
 
 
 
