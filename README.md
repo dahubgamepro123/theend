@@ -11,8 +11,6 @@ Zipeyk ❤️
 
 ZIPEGE ait tüm BILGILER BEN VE SAHIN TEKGOZ ile SONSUZA DEK KORUNACAKTIR.
 
-Copyright © 2021 aiden aka utkı - All rights reserve.
-
 
 bu bir son ve zipeğe özür mesajıdır.
 
@@ -22,4 +20,7 @@ kfmsDnKDM36caxae11 presents.
 + olarak zipeğe normalde borc olarak korblox almıştım fakat borc arkadaşlığı bozar oyuzden parasını almadım .
 
 + olarak bazı insanlar zipekle beni sevgili zannediyordu hic bir zaman sevgili olmadık sadece ailemden fazla değer veriyordum.
+
+
+Copyright © 2021 aiden aka utku - All rights reserve.
 
