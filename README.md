@@ -41,3 +41,4 @@ tayo kardeşim gibiydi taa bundan 3 yıl once geldi bana roblox lua sını ögre
 
 + Copyright © 2021 aiden aka utku - All rights reserve.
 
+https://aixhook.club ah be :D
