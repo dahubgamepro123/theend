@@ -33,6 +33,9 @@ tayo kardeşim gibiydi taa bundan 3 yıl once geldi bana roblox lua sını ögre
 
 
 
++ipek hep, senden bi’ sikim olmaz, beyinsizsin, derdi bana
+
++ ODER OLMAYIN AMINIZA KOYAYIM AAAA OFF sex
 
 + olarak DERINDEN HICBIR SEKILDE BIR NUDE ALMADIM 
 
